@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **furkaan.seen@gmail.com**
 
-- 📄 Know about my experiences [https://flowcv.com/resume/vgs7har5nj](https://flowcv.com/resume/vgs7har5nj)
+- 📄 Know about my experiences [**click**](https://flowcv.com/resume/vgs7har5nj)
 
 ### Blogs posts
 <!-- BLOG-POST-LIST:START -->
